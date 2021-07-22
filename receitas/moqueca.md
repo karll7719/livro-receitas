@@ -1,4 +1,4 @@
-#MOQUECA BAIANA
+#MOQUECA BAIANA (tradicional)
 
 ##INGREDIENTES
 
